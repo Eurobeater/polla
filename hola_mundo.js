@@ -6,4 +6,4 @@ culo
 teta
 ano
 testiculos
-sexo anal
+sexo oral
